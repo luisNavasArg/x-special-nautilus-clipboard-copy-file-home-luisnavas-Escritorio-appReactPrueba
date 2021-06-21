@@ -1,0 +1,1 @@
+# x-special-nautilus-clipboard-copy-file-home-luisnavas-Escritorio-appReactPrueba
